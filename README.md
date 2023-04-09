@@ -1,4 +1,4 @@
-### Hi there, I am Hsu Q Nian👋
+### Hi there, I am HsuQNian👋
 
 > A student from **HuNan, China**.
 
