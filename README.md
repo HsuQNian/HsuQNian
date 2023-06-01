@@ -1,6 +1,6 @@
 ### Hi there, I am HsuQNian👋
 
-> A student from **HuNan, China**.
+> A fresh graduates from **HuNan, China**.
 
 ### Reach me:
 
